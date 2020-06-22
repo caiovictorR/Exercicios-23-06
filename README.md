@@ -1,1 +1,0 @@
-# Exercicios-23-06
